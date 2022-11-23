@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Wanderson027
 - 👀 I’m interested in Front/Back end Development witch Java8
 - 🌱 I’m currently learning Java Efetivo 2ª edição
-- 💞️ I’m looking to collaborate on Quintess Department of Police
+- 💞️ I’m looking to collaborate on Stefanini Department of Police
 - 📫 How to reach me Luziania-Go Brasil
 
 <!---
