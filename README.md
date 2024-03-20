@@ -12,4 +12,4 @@ You can click the Preview link to take a look at your changes.
   
  💞️ ABAIXO UM PLANO DE ESTUDOS COM MATERIAL GRATIS E DE GRANDE QUALIDADE!!! 
 
- 🌱LINK PDF:  -> https://1drv.ms/w/s!AjJl3sYLL0vuwi7mX-U3K5Zf2bKG?e=6K529n
+ 🌱LINK PDF:  -> https://1drv.ms/b/c/ee4b2f0bc6de6532/Efsg3Nz-Mr1HrdUDXPTs0AMB2gl1CuYwb0agPtN6ObUzQw?e=p8pSmz
